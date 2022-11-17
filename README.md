@@ -1,4 +1,5 @@
-![download](https://user-images.githubusercontent.com/39864976/202446406-acc673e0-a530-48cd-bed4-614b81aa9184.jpg)
+![1 E1LonYGC5Fx4QLY4W5SaVA](https://user-images.githubusercontent.com/39864976/202446617-2b4f3a45-0842-4cf7-b0dc-1229795e13b7.jpeg)
+
 
 👋 Wassap I am Habtamu Wolde 🧑‍💻 from Addis Ababa, Ethiopia!
 
