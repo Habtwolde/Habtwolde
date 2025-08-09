@@ -9,6 +9,5 @@
 📫 You know where to find me😉 
 
                     📧 Habtwolde5@gmail.com
-                    🦜 @yafet18 at Twitter
                     💼 https://www.linkedin.com/in/habtamu-wolde-/ - For Linkedin
 
