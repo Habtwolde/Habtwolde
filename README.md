@@ -4,8 +4,6 @@
 
 👀 I enjoy in so many different things but c, python programming and Meditation is my kind of things.
 
-🌱 I’m currently learning Software Engineering at ALX
-
 📫 You know where to find me😉 
 
                     📧 Habtwolde5@gmail.com
